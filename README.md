@@ -1,1 +1,0 @@
-# aruzhanyklassova.github.io
